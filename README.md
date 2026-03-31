@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm Alaric Abyasa<br>💻 Learning Software Engineering<br>😈 I LOVE Cybersecurity And Web3<br>👉 Need me for your project?<br>📩 Discord: @tapsynt
+👋 Hi, I'm Alaric Abyasa<br>💻 Learning Software Engineering<br>👉 Need me for your project?<br>📩 Discord: @alaricgoneghost
 
 
 ## 🌐 Socials:
